@@ -1,4 +1,6 @@
-errrrmmm [rentry](https://rentry.co/mirroredgem) & [strawpage](https://sfothletsky.straw.page) attack
+errrrmmm [rentry](https://rentry.co/mirroredgem) attack.. 
+
+previously ; sfothletsky & venomshanker 
 
 Hi read my rentry & my strawpage, they have all the important stuff
 
