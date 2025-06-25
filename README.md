@@ -10,7 +10,7 @@ art by legowizard on tumblr
 
 ꩜ im autistic & struggle with certain tones so i will ASK YOU to clarify ! dont use tone tags on me
 
-꩜ girlthing (i normally say genderfae) demiromantic & asexual lesbian
+꩜ girlthing but sometimes i say genderfae, demiromantic & asexual lesbian
 
 ↳ use whatever terms you want on me but i prefer neutral ones :3 (idgaf what you call me)
 
