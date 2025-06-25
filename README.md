@@ -1,3 +1,5 @@
+art by legowizard on tumblr
+
 <p align="center">
   <img src="https://files.catbox.moe/fr9s1v.webp">
 </p>
