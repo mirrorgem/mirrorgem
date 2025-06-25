@@ -1,11 +1,25 @@
-given up on making it look nice.. [rentry](https://rentry.co/grieferspace)
+<p align="center">
+  <img src="https://files.catbox.moe/fr9s1v.webp">
+</p>
 
-im 17 so if youre -16 or +18 do not make ANY weird comments to me, thanks!
+<div align="center">
 
-my cosplays often reflect what character im attached to the most, if you see me sitting in a pony alot im probably attached to said character, so dont be weird about them okay? okay!
+✩ read my [rentry](https://rentry.co/mirroredgem) before inting 
 
-lily crow #1 fan :3 (please listen to lily crow she deserves WAY more listeners)
+꩜ im autistic & struggle with certain tones so i will ASK YOU to clarify ! dont use tone tags on me
 
-also go listen to ALFREDA!!! im not her #1 fan thats loaf but she also deserves SO MUCH MORE LISTENERS
+꩜ girlthing (i normally say genderfae) demiromantic & asexual lesbian
 
-read my rentry & whatever else thats all
+↳ use whatever terms you want on me but i prefer neutral ones :3 (idgaf what you call me)
+
+꩜ if you're gonna insult me be creative and dont have ur twitter linked with your goonslop art bruh
+
+꩜ if you wanna be friends you can whisper me OR c+h enough to the point i have to say hi or something
+
+꩜ -14 & 18+ do not say weird shit to me 
+
+♫ artists i like ; machinery of the human heart , chappell roan , LILY CROW , alfreda, olivia rodrigo + more *!!* (i listen to everything that sounds good to me, these are only a few!)
+
+☆ some of my fandoms ; regretevator , phighting , dandys world ⟡ adventure time / fionna & cake + steven universe 
+
+</div>
