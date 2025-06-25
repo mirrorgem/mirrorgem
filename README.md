@@ -18,9 +18,9 @@ art by legowizard on tumblr
 
 ꩜ if you wanna be friends you can whisper me OR c+h enough to the point i have to say hi or something
 
-꩜ -14 & 18+ do not say weird shit to me 
+꩜ if you're -14 & 18+ do not say weird shit to me 
 
-♫ artists i like ; machinery of the human heart , chappell roan , LILY CROW , alfreda, olivia rodrigo + more *!!* (i listen to everything that sounds good to me, these are only a few!)
+♫ artists i like ; too much to list .. [last fm](https://www.last.fm/user/fazerblasts)
 
 ☆ some of my fandoms ; regretevator , phighting , dandys world ⟡ adventure time / fionna & cake + steven universe 
 
