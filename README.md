@@ -10,6 +10,8 @@ art by legowizard on tumblr
 
 ꩜ im autistic & struggle with certain tones so i will ASK YOU to clarify ! dont use tone tags on me
 
+꩜ 9/10 times im online & just sitting there it means im doing something else, that 1 time im not im usually people watching cuz im bored
+
 ꩜ girlthing but sometimes i say genderfae, demiromantic & asexual lesbian
 
 ↳ use whatever terms you want on me but i prefer neutral ones :3 (idgaf what you call me)
