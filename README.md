@@ -8,22 +8,22 @@
 
 ✩ [rentry](https://rentry.co/mirroredgem) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://crystalshift.straw.page)
 
-꩜ im autistic & struggle with certain tones so i will ASK YOU to clarify ! dont use tone tags on me
+꩜ i struggle with tone & will ask you to clarify - do not use tonetags on me w/o perms !!!!
 
-꩜ 9/10 times im online & just sitting there it means im doing something else, that 1 time im not im usually people watching cuz im bored
+꩜ if you see me online im usually doing something else, whisper me ^3^ 
 
-꩜ girlthing but sometimes i say genderfae, demiromantic & asexual lesbian
+꩜ any terms are fine but i have a pref for fem & neu ones !!! 
 
-↳ use whatever terms you want on me but i prefer neutral ones :3 (idgaf what you call me)
-
-꩜ if you're gonna insult me be creative and dont have ur twitter linked with your goonslop art bruh
+꩜ i get anxious like alot if im acting weird thats usually why
 
 ꩜ if you wanna be friends you can whisper me OR c+h enough to the point i have to say hi or something
 
-꩜ if you're -14 & 18+ do not say weird shit to me 
+꩜ if you're -14 & +18 do not say weird shit to me 
+
+꩜ sometimes i can talk alot errm! its usually when i mention things im passionate about (history+starkid)
 
 ♫ artists i like ; too much to list .. [last fm](https://www.last.fm/user/fazerblasts)
 
-☆ some of my fandoms ; regretevator , phighting , dandys world ⟡ adventure time / fionna & cake + steven universe 
+☆ **some** of my fandoms ; regretevator , phighting , dandys world ⟡ adventure time / fionna & cake + steven universe 
 
 </div>
