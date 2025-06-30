@@ -1,7 +1,7 @@
-art by legowizard on tumblr
+
 
 <p align="center">
-  <img src="https://files.catbox.moe/fr9s1v.webp">
+  <img src="https://files.catbox.moe/sv341p.gif">
 </p>
 
 <div align="center">
