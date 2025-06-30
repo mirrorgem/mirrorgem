@@ -1,3 +1,10 @@
+<div align="center">
+
+𓂃 *oh i loved you more than you know,*
+
+*covered in flakes of crystal white snow* 𓂅
+
+</div>
 
 
 <p align="center">
@@ -18,12 +25,16 @@
 
 ꩜ if you wanna be friends you can whisper me OR c+h enough to the point i have to say hi or something
 
-꩜ if you're -14 & +18 do not say weird shit to me 
+꩜ if you're 14- & +18 do not say weird shit to me 
 
 ꩜ sometimes i can talk alot errm! its usually when i mention things im passionate about (history+starkid)
 
+ꕀ
+
 ♫ artists i like ; too much to list .. [last fm](https://www.last.fm/user/fazerblasts)
 
-☆ **some** of my fandoms ; regretevator , phighting , dandys world ⟡ adventure time / fionna & cake + steven universe 
+♡ **main** fandoms ; rblx games (reg, p!, blocktales, dw, etc) , adventure time / fionna+cake , slaytheprincess + starkid
+
+♡ **other** fandoms ; house md , steven universe , fnaf , crk , wednesday + more
 
 </div>
