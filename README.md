@@ -13,7 +13,7 @@
 
 <div align="center">
 
-✩ [rentry](https://rentry.co/mirroredgem) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://crystalshift.straw.page)
+✩ [rentry](https://rentry.co/mirroredgem) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
 
 ꩜ i struggle with tone & will ask you to clarify - do not use tonetags on me w/o perms !!!!
 
