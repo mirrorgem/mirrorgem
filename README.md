@@ -6,7 +6,7 @@
 
 <div align="center">
 
-✩ read my [rentry](https://rentry.co/mirroredgem) before inting 
+✩ [rentry](https://rentry.co/mirroredgem) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://crystalshift.straw.page)
 
 ꩜ im autistic & struggle with certain tones so i will ASK YOU to clarify ! dont use tone tags on me
 
