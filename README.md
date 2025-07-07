@@ -17,6 +17,8 @@
 
 ꩜ i struggle with tone & will ask you to clarify - do not use tonetags on me w/o perms !!!!
 
+꩜ darkshippers blocked on sight why do you guys always come into spaces filled with minors? riddle me that
+
 ꩜ if you see me online im usually doing something else, whisper me ^3^ 
 
 ꩜ any terms are fine but i have a pref for fem & neu ones !!! 
