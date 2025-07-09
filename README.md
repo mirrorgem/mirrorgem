@@ -1,18 +1,5 @@
 <div align="center">
 
-𓂃 *oh i loved you more than you know,*
-
-*covered in flakes of crystal white snow* 𓂅
-
-</div>
-
-
-<p align="center">
-  <img src="https://files.catbox.moe/sv341p.gif">
-</p>
-
-<div align="center">
-
 ✩ [rentry](https://rentry.co/mirroredgem) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
 
 ꩜ i struggle with tone & will ask you to clarify - do not use tonetags on me w/o perms !!!!
@@ -40,3 +27,8 @@
 ♡ **other** fandoms ; house md , steven universe , fnaf , crk , wednesday + more
 
 </div>
+
+<p align="center">
+  <img src="https://files.catbox.moe/o56mcr.webp">
+</p>
+
