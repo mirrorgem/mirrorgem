@@ -20,13 +20,13 @@
 
 ♫ artists i like ; too much to list .. [last fm](https://www.last.fm/user/fazerblasts)
 
-♡ **main** fandoms ; rblx games (reg, p!, blocktales, dw, etc) , adventure time / fionna+cake , slaytheprincess + starkid
+♡ **main** fandoms ; rblx games (reg, p!, blocktales, dw, etc) , date everything , wednesday , slaytheprincess + starkid
 
-♡ **other** fandoms ; house md , steven universe , fnaf , crk , wednesday + more
+♡ **other** fandoms ; house md , steven universe , fnaf , crk , adventuretime + more
 
 </div>
 
 <p align="center">
-  <img src="https://files.catbox.moe/o56mcr.webp">
+  <img src="https://files.catbox.moe/8urfql.png">
 </p>
 
