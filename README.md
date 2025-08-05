@@ -18,7 +18,7 @@
 
 ꩜ if you're 14- & +18 do not say weird shit to me 
 
-꩜ sometimes i can talk alot errm! its usually when i mention things im passionate about (history+starkid)
+꩜ sometimes i can talk alot errm! its usually when i mention things im passionate about (phighting+starkid)
 
 ꕀ
 
