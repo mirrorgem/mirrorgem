@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://files.catbox.moe/qgz7mw.webp">
+</p>
+
 <div align="center">
 
 ✩ [rentry](https://rentry.co/mirroredgem) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
@@ -27,6 +31,6 @@
 </div>
 
 <p align="center">
-  <img src="https://files.catbox.moe/8urfql.png">
+  <img src="https://files.catbox.moe/hnqfp7.webp">
 </p>
 
