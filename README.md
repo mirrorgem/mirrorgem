@@ -22,9 +22,3 @@
 
 ૮₍´｡･⩊･ ｡`₎ა 
 
-</div>
-
-<p align="center">
-  <img src="https://files.catbox.moe/nnu2le.webp">
-</p>
-
