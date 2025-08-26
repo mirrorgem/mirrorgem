@@ -22,3 +22,8 @@
 
 ૮₍´｡･⩊･ ｡`₎ა 
 
+collect my alts ; [lautity](https://github.com/lautity) , [crystalclods](https://github.com/crystalclods) & [wenclaiir](https://github.com/wenclairr)
+
+i luv hoarding urls dont even joke lad
+
+[i use these on characters who fit either the ship or the name *!!*]
