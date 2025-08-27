@@ -18,7 +18,7 @@
 
 ७ big fan of courtgela (ssg specific) 
 
-୭ making a fandom list rentry !! (its takign a while) 
+୭ fandom rentry!! ; .co/[Iautity](https://rentry.co/Iautity) (capital i </3) 
 
 ૮₍´｡･⩊･ ｡`₎ა 
 
