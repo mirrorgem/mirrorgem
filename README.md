@@ -6,7 +6,7 @@
 
 ıllı
 
-✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://mirrorgem.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
+✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://courtgela.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
 
 𓏲 rentry ; [.co/serotoninsupply](https://rentry.co/serotoninsupply) (≧◡≦)
 
