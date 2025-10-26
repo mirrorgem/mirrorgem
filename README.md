@@ -16,7 +16,7 @@
 
 ୭ 17 y/o ヽ -14 / 18+ dniuf/uid
 
-७ big fan of yuri) 
+७ big fan of yuri 
 
 ୭ fandom rentry!! ; .co/[Iautity](https://rentry.co/Iautity) (capital i </3) 
 
