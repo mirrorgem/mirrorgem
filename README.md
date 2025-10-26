@@ -6,7 +6,7 @@
 
 ıllı
 
-✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://courtgela.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
+✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://madkit.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
 
 𓏲 rentry ; [.co/interdire](https://rentry.co/interdire) (≧◡≦)
 
