@@ -6,7 +6,7 @@
 
 ıllı
 
-✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://madkit.atabook.org) ◞ [strawpage](https://mirrorgem.straw.page)
+✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://madkit.atabook.org) ◞ [strawpage](https://crystalshift.straw.page)
 
 𓏲 rentry ; [.co/interdire](https://rentry.co/interdire) (≧◡≦)
 
@@ -26,4 +26,4 @@ collect my alts ; [lautity](https://github.com/lautity) , [crystalclods](https:/
 
 i luv hoarding urls dont even joke lad
 
-[i use these on characters who fit either the ship or the name *!!*]
+[i use these on characters who fit either the ship or the fandom *!!*]
