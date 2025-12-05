@@ -1,6 +1,6 @@
 <div align="center">
 
-[pfp](https://www.tumblr.com/starridge) , [deco](https://www.tumblr.com/syarif-hidayatullah100)
+[art cred 1 ](https://www.tumblr.com/starridge) ︶ [art cred 2](https://www.tumblr.com/syarif-hidayatullah100)
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/04dcfb28-92d6-4162-9133-e16ef1b2bb10">
