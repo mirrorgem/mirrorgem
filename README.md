@@ -23,6 +23,6 @@ ${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}names}}$ ${\textsf{\col
 
 ${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}under}}$ ${\textsf{\color{#539a8f}14}}$  ${\textsf{\color{#539a7d}+}}$  ${\textsf{\color{#539a64}over}}$  ${\textsf{\color{#579a53}21}}$  ${\textsf{\color{#579a53}limit}}$ ${\textsf{\color{#639a53}interactions}}$  
 
-${\textsf{\color{#53669a}these}}$  ${\textsf{\color{#537f9a}colours}}$  ${\textsf{\color{#539a8f}are}}$   ${\textsf{\color{#539a7d}SO}}$  ${\textsf{\color{#539a64}fun}}$  ${\textsf{\color{#579a53}to}}$  ${\textsf{\color{#639a53}use}}$  ${\textsf{\color{#7e9a53}boi}}$ 
+${\textsf{\color{#53669a}७}}$  ${\textsf{\color{#537f9a}usually}}$  ${\textsf{\color{#539a8f}offtab}}$   ${\textsf{\color{#539a7d}ﾉ}}$  ${\textsf{\color{#539a64}afk}}$  ${\textsf{\color{#579a53}whisper}}$  ${\textsf{\color{#639a53}to}}$  ${\textsf{\color{#7e9a53}interact!!}}$ 
 
 
