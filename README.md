@@ -1,5 +1,8 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=mirrorgem&label=pumpkins&color=5991CD) 
+
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/04dcfb28-92d6-4162-9133-e16ef1b2bb10">
 </p>
