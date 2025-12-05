@@ -14,9 +14,9 @@ ${\textsf{\color{#539a8f}𓏲}}$ ${\textsf{\color{#539a7d}rentry ~ ;}}$ [.co/mir
 
 ${\textsf{\color{#53669a}　︶︶︶}}$  ${\textsf{\color{#537f9a}　︶︶︶}}$ ${\textsf{\color{#53949a}　౨ৎ}}$ ${\textsf{\color{#539a8f}　︶︶︶}}$  ${\textsf{\color{#539a7d}　︶︶︶}}$
 
-${\textsf{\color{#4876d7} ७ ~ bonnibel ~ ﾉ  ~ lapis ~ ﾉ ~ enid ~ !!}}$ 
+${\textsf{\color{#4876d7} ७ ~ art ~ by  ~ starridge ~ and ~ syarif-hidayatullah100 ~ on ~ tumblr}}$ 
 
-${\textsf{\color{#5991cd} ७ ~ art ~ by  ~ starridge ~ amd ~ syarif-hidayatullah100 ~ on ~ tumblr}}$ 
+${\textsf{\color{#5991cd} ७ ~ names ~ ᎓ ~ bonnibel ~ ﾉ  ~ lapis ~ ﾉ ~ enid ~ !!}}$
 
 ${\textsf{\color{#75b4d1} ७ ~ under ~ 14  ~ + ~ over ~ 21 ~ dniuid/uf}}$  
 
