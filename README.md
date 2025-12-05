@@ -17,11 +17,12 @@ ${\textsf{\color{#539a8f}𓏲}}$ ${\textsf{\color{#539a7d}rentry ~ ;}}$ [.co/mir
 
 ${\textsf{\color{#53669a}　︶︶︶}}$  ${\textsf{\color{#537f9a}　︶︶︶}}$ ${\textsf{\color{#53949a}　౨ৎ}}$ ${\textsf{\color{#539a8f}　︶︶︶}}$  ${\textsf{\color{#539a7d}　︶︶︶}}$
 
-${\textsf{\color{#4876d7} ७ ~ art ~ by  ~ starridge ~ and ~ syarif-hidayatullah100 ~ on ~ tumblr}}$ 
+${\textsf{\color{#53669a}७}}$  ${\textsf{\color{#537f9a}art}}$  ${\textsf{\color{#539a8f}by}}$   ${\textsf{\color{#539a7d}starridge}}$  ${\textsf{\color{#539a64}and}}$  ${\textsf{\color{#579a53}syarif-hidayatullah100}}$  ${\textsf{\color{#639a53}on}}$  ${\textsf{\color{#7e9a53}tumblr}}$ 
 
-${\textsf{\color{#5991cd} ७ ~ names ~ ᎓ ~ bonnibel ~ ﾉ  ~ lapis ~ ﾉ ~ enid ~ !!}}$
+${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}names}}$ ${\textsf{\color{#539a8f}᎓}}$  ${\textsf{\color{#539a7d}bonnibel}}$  ${\textsf{\color{#539a64}ﾉ}}$   ${\textsf{\color{#579a53}lapis}}$  ${\textsf{\color{#639a53}ﾉ}}$  ${\textsf{\color{#7e9a53}enid}}$
 
-${\textsf{\color{#75b4d1} ७ ~ under ~ 14  ~ + ~ over ~ 21 ~ dniuid/uf}}$  
+${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}under}}$ ${\textsf{\color{#539a8f}14}}$  ${\textsf{\color{#539a7d}+}}$  ${\textsf{\color{#539a64}over}}$  ${\textsf{\color{#579a53}21}}$  ${\textsf{\color{#579a53}limit}}$ ${\textsf{\color{#639a53}interactions}}$  
 
+${\textsf{\color{#53669a}these}}$  ${\textsf{\color{#537f9a}colours}}$  ${\textsf{\color{#539a8f}are}}$   ${\textsf{\color{#539a7d}SO}}$  ${\textsf{\color{#539a64}fun}}$  ${\textsf{\color{#579a53}to}}$  ${\textsf{\color{#639a53}use}}$  ${\textsf{\color{#7e9a53}boi}}$ 
 
 
