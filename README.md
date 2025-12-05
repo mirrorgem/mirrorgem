@@ -16,10 +16,9 @@ ${\textsf{\color{#53669a}　︶︶︶}}$  ${\textsf{\color{#537f9a}　︶︶︶}
 
 ${\textsf{\color{#4876d7} ७ ~ bonnibel ~ ﾉ  ~ lapis ~ ﾉ ~ enid ~ !!}}$ 
 
-${\textsf{\color{#5991cd} ७ ~ under ~ 14  ~ + ~ over ~ 21 ~ dniuid}}$ 
+${\textsf{\color{#5991cd} ७ ~ art ~ by  ~ starridge ~ amd ~ syarif-hidayatullah100 ~ on ~ tumblr}}$ 
 
-${\textsf{\color{#75b4d1} ७ ~ im ~ an  ~ aro ~ ace ~ lesbithing ~ :3}}$  
+${\textsf{\color{#75b4d1} ७ ~ under ~ 14  ~ + ~ over ~ 21 ~ dniuid/uf}}$  
 
-[art cred 1 ](https://www.tumblr.com/starridge) ︶ [art cred 2](https://www.tumblr.com/syarif-hidayatullah100)
 
 
