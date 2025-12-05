@@ -8,26 +8,18 @@
 
 
 
-ıllı
+${\textsf{\color{#53669a}ıllı}}$
 
-✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://madkit.atabook.org) ◞ [strawpage](https://crystalshift.straw.page)
+${\textsf{\color{#537f9a}✩}}$ [prns.cc](https://pronouns.cc/@courtgela) ${\textsf{\color{#537f9a}◞}}$ [atabook](https://madkit.atabook.org) ${\textsf{\color{#53949a}◞}}$ [strawpage](https://crystalshift.straw.page)
 
-𓏲 rentry ; [.co/mirroredgem](https://rentry.co/mirroredgem) (≧◡≦)
+${\textsf{\color{#539a8f}𓏲}}$ ${\textsf{\color{#539a7d}rentry ~ ;}}$ [.co/mirroredgem](https://rentry.co/mirroredgem) ${\textsf{\color{#539a64} (≧◡≦)}}$
 
-︶︶︶  ︶︶︶ ౨ৎ ︶︶︶  ︶︶︶
+${\textsf{\color{#53669a}　︶︶︶}}$  ${\textsf{\color{#537f9a}　︶︶︶}}$ ${\textsf{\color{#53949a}　౨ৎ}}$ ${\textsf{\color{#539a8f}　︶︶︶}}$  ${\textsf{\color{#539a7d}　︶︶︶}}$
 
-७ bonnibel or enid *!!*
+${\textsf{\color{#4876d7} ७ ~ bonnibel ~ ﾉ  ~ lapis ~ ﾉ ~ enid ~ !!}}$ 
 
-୭ 17 y/o ヽ -14 / 18+ dniuf/uid
+${\textsf{\color{#5991cd} ७ ~ under ~ 14  ~ + ~ over ~ 21 ~ dniuid}}$ 
 
-७ big fan of yuri 
+${\textsf{\color{#75b4d1} ७ ~ im ~ an  ~ aro ~ ace ~ lesbithing ~ :3}}$  
 
-୭ fandom rentry!! ; .co/[Iautity](https://rentry.co/Iautity) (capital i </3) 
 
-૮₍´｡･⩊･ ｡`₎ა 
-
-collect my alts ; [lautity](https://github.com/lautity) , [crystalclods](https://github.com/crystalclods) & [wenclaiir](https://github.com/wenclairr)
-
-i luv hoarding urls dont even joke lad
-
-[i use these on characters who fit either the ship or the fandom *!!*]
