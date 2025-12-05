@@ -1,7 +1,5 @@
 <div align="center">
 
-[art cred 1 ](https://www.tumblr.com/starridge) ︶ [art cred 2](https://www.tumblr.com/syarif-hidayatullah100)
-
 <p align="center">
   <img src="https://github.com/user-attachments/assets/04dcfb28-92d6-4162-9133-e16ef1b2bb10">
 </p>
@@ -21,5 +19,7 @@ ${\textsf{\color{#4876d7} ७ ~ bonnibel ~ ﾉ  ~ lapis ~ ﾉ ~ enid ~ !!}}$
 ${\textsf{\color{#5991cd} ७ ~ under ~ 14  ~ + ~ over ~ 21 ~ dniuid}}$ 
 
 ${\textsf{\color{#75b4d1} ७ ~ im ~ an  ~ aro ~ ace ~ lesbithing ~ :3}}$  
+
+[art cred 1 ](https://www.tumblr.com/starridge) ︶ [art cred 2](https://www.tumblr.com/syarif-hidayatullah100)
 
 
