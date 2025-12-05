@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/sqcgf8.png">
+  <img src="https://github.com/user-attachments/assets/04dcfb28-92d6-4162-9133-e16ef1b2bb10">
 </p>
 
 <div align="center">
