@@ -1,14 +1,18 @@
+<div align="center">
+
+[pfp](https://www.tumblr.com/starridge) , [deco](https://www.tumblr.com/syarif-hidayatullah100)
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/04dcfb28-92d6-4162-9133-e16ef1b2bb10">
 </p>
 
-<div align="center">
+
 
 ıllı
 
 ✩ [prns.cc](https://pronouns.cc/@courtgela) ◞ [atabook](https://madkit.atabook.org) ◞ [strawpage](https://crystalshift.straw.page)
 
-𓏲 rentry ; [.co/interdire](https://rentry.co/interdire) (≧◡≦)
+𓏲 rentry ; [.co/interdire](https://rentry.co/mirroredgem) (≧◡≦)
 
 ︶︶︶  ︶︶︶ ౨ৎ ︶︶︶  ︶︶︶
 
