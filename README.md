@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mirrorgem&label=bffies&color=539a7d) 
+![](https://komarev.com/ghpvc/?username=mirrorgem&label=💧&color=539a7d) 
 
 
 <p align="center">
@@ -21,7 +21,7 @@ ${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}names}}$ ${\textsf{\col
 
 ${\textsf{\color{#53669a}७}}$  ${\textsf{\color{#537f9a}art}}$  ${\textsf{\color{#539a8f}by}}$   ${\textsf{\color{#539a7d}starridge}}$  ${\textsf{\color{#539a64}and}}$  ${\textsf{\color{#579a53}syarif-hidayatullah100}}$  ${\textsf{\color{#639a53}on}}$  ${\textsf{\color{#7e9a53}tumblr}}$ 
 
-${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}under}}$ ${\textsf{\color{#539a8f}14}}$  ${\textsf{\color{#539a7d}+}}$  ${\textsf{\color{#539a64}over}}$  ${\textsf{\color{#579a53}21}}$ ${\textsf{\color{#579a53}PLEASE}}$ ${\textsf{\color{#639a53}limit}}$ ${\textsf{\color{#7e9a53}interactions}}$  
+${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}under}}$ ${\textsf{\color{#539a8f}15}}$  ${\textsf{\color{#539a7d}+}}$  ${\textsf{\color{#539a64}over}}$  ${\textsf{\color{#579a53}24}}$ ${\textsf{\color{#579a53}PLEASE}}$ ${\textsf{\color{#639a53}limit}}$ ${\textsf{\color{#7e9a53}interactions}}$  
 
 ${\textsf{\color{#53669a}७}}$  ${\textsf{\color{#537f9a}usually}}$  ${\textsf{\color{#539a8f}offtab}}$   ${\textsf{\color{#539a7d}ﾉ}}$  ${\textsf{\color{#539a64}afk}}$  ${\textsf{\color{#579a53}whisper}}$  ${\textsf{\color{#639a53}to}}$  ${\textsf{\color{#7e9a53}interact!!}}$ 
 
