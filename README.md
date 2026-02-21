@@ -11,7 +11,7 @@
 
 ${\textsf{\color{#53669a}ıllı}}$
 
-${\textsf{\color{#537f9a}◞}}$ [atabook](https://glitchtrap.atabook.org) ${\textsf{\color{#53949a}◞}}$ [strawpage](https://crystalshift.straw.page)
+ [atabook](https://glitchtrap.atabook.org) ${\textsf{\color{#53949a}◞}}$ [strawpage](https://crystalshift.straw.page)
 
 ${\textsf{\color{#539a8f}𓏲}}$ ${\textsf{\color{#539a7d}rentry ~ ;}}$ [.co/mirroredgem](https://rentry.co/mirroredgem) ${\textsf{\color{#539a64} (≧◡≦)}}$
 
