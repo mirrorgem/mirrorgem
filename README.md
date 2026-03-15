@@ -25,4 +25,6 @@ ${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}under}}$ ${\textsf{\col
 
 ${\textsf{\color{#53669a}७}}$  ${\textsf{\color{#537f9a}usually}}$  ${\textsf{\color{#539a8f}offtab}}$   ${\textsf{\color{#539a7d}ﾉ}}$  ${\textsf{\color{#539a64}afk}}$  ${\textsf{\color{#579a53}whisper}}$  ${\textsf{\color{#639a53}to}}$  ${\textsf{\color{#7e9a53}interact!!}}$ 
 
+[callout on @puppyprincessplush](https://rentry.co/sludgepup)
+
 
