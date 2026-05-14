@@ -17,7 +17,7 @@ ${\textsf{\color{#539a8f}𓏲}}$ ${\textsf{\color{#539a7d}rentry ~ ;}}$ [.co/mir
 
 ${\textsf{\color{#53669a}　︶︶︶}}$  ${\textsf{\color{#537f9a}　︶︶︶}}$ ${\textsf{\color{#53949a}　౨ৎ}}$ ${\textsf{\color{#539a8f}　︶︶︶}}$  ${\textsf{\color{#539a7d}　︶︶︶}}$
 
-${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}names}}$ ${\textsf{\color{#539a8f}᎓}}$  ${\textsf{\color{#539a7d}bonnibel}}$  ${\textsf{\color{#539a64}ﾉ}}$   ${\textsf{\color{#579a53}lapis}}$  ${\textsf{\color{#639a53}ﾉ}}$  ${\textsf{\color{#7e9a53}enid}}$
+${\textsf{\color{#53669a}७}}$ ${\textsf{\color{#537f9a}names}}$ ${\textsf{\color{#539a8f}᎓}}$  ${\textsf{\color{#539a7d}bonnibel}}$  ${\textsf{\color{#539a64}ﾉ}}$   ${\textsf{\color{#579a53}charlotte}}$  ${\textsf{\color{#639a53}ﾉ}}$  ${\textsf{\color{#7e9a53}enid}}$
 
 ${\textsf{\color{#53669a}७}}$  ${\textsf{\color{#537f9a}art}}$  ${\textsf{\color{#539a8f}by}}$   ${\textsf{\color{#539a7d}starridge}}$  ${\textsf{\color{#539a64}and}}$  ${\textsf{\color{#579a53}syarif-hidayatullah100}}$  ${\textsf{\color{#639a53}on}}$  ${\textsf{\color{#7e9a53}tumblr}}$ 
 
