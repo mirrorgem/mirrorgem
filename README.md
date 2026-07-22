@@ -1,9 +1,15 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=mirrorgem&label=♡&color=671414) 
+![](https://komarev.com/ghpvc/?username=mirrorgem&label=obsessed&color=671414) 
 
-<img width="236" height="236" alt="image" src="https://i.pinimg.com/736x/f3/2a/34/f32a34087a819eeeae03df7643f79ae2.jpg" />
+<img src="https://files.catbox.moe/34dl5g.webp" />
 
-${\textsf{\color{#671414}FINALLY~REDOING}}$ !!
+${\textsf{\color{#ff1a29}c+h}}$ ${\textsf{\color{#e00029}always}}$ ${\textsf{\color{#c80027}encouraged!!}}$ ${\textsf{\color{#b50027}please}}$ ${\textsf{\color{#a10028}sit}}$ ${\textsf{\color{#8e002a}with}}$ ${\textsf{\color{#72001c}me..}}$ 
+
+${\textsf{\color{#ff1a29}pro}}$ ${\textsf{\color{#e00029}and}}$ ${\textsf{\color{#c80027}dark}}$ ${\textsf{\color{#b50027}shippers}}$ ${\textsf{\color{#a10028}do}}$ ${\textsf{\color{#8e002a}not}}$ ${\textsf{\color{#72001c}interact~!!}}$ 
+
+${\textsf{\color{#ff1a29}under}}$ ${\textsf{\color{#e00029}16}}$ ${\textsf{\color{#c80027}and}}$ ${\textsf{\color{#b50027}over}}$ ${\textsf{\color{#a10028}20}}$ ${\textsf{\color{#8e002a}limit}}$ ${\textsf{\color{#72001c}interactions}}$ 
+
+
 
 
