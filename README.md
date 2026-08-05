@@ -1,5 +1,7 @@
 <div align="center">
 
+${\textsf{\color{#ff1a29}PONY}}$ ${\textsf{\color{#c80027}TOWNS}}$ ${\textsf{\color{#a10028}LOTTIE}}$ ${\textsf{\color{#72001c}MATTHEWS}}$ [♡](https://github.com/ponytown-nominations) 
+
 ![](https://komarev.com/ghpvc/?username=mirrorgem&label=obsessed&color=671414) 
 
 <img src="https://files.catbox.moe/34dl5g.webp" />
